@@ -17,6 +17,7 @@
 ## 📫 How to reach me
 
 * LinkedIn: https://linkedin.com/in/
+* Mail: betovildoza@gmail.com
 * GitHub: https://github.com/betovildoza
 
 
